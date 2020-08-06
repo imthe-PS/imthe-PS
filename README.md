@@ -5,6 +5,7 @@
 - 👯 I’m looking to collaborate on Machine Learning Projects
 - 📫 How to reach me:  LinkedIn- https://www.linkedin.com/in/imthe-ps/
                        Twitter - https://twitter.com/imthe_PS
+                       Gmail - jkpsrinivas.b.e@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: My favourite colour is White
 - Open to connect and take suggestions
